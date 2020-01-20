@@ -1,3 +1,6 @@
 - Purity Ring - begin again (HEALTH remix) (https://www.youtube.com/watch?v=JeyHxmw2j3s&list=RDMMJeyHxmw2j3s)
 - P.M.B. feat. Disarstar & BOZ - Wie lange noch (https://www.youtube.com/watch?v=JUYg15cLyMg)
 - In the Air Tonight (Cover) (https://www.youtube.com/watch?v=k7agiqfuQmQ)
+- Serj Tankian - Empty Walls (Video) (https://www.youtube.com/watch?v=dGWQqRyO8gA)
+- Billy Joel - "We Didn't Start The Fire" (2015 version by It Lives, It Breathes) (https://www.youtube.com/watch?v=_16Ws1vYoc0)
+- Guano Apes - Lose Yourself (Official Music Video) (https://www.youtube.com/watch?v=vQCkw-dzqac)
